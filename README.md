@@ -36,6 +36,6 @@ retheming probably</br>
   aesop</a>
   <a href="https://github.com/DirectorWifies">
   wifies</a>
-     <br>ask 2 be removed !<br>i add almost every1 i feel comfy with !</br>
+     <br>ask to be removed, i add almost everyone i feel comfy with</br>
   
   </details>
