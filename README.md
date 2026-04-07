@@ -1,4 +1,14 @@
-<div align="left">
-#1 3DG fan (literally)</br>#1 on last.fm : #17 on Spotify</br>8.1k+ hrs in 2025, 56k+ total plays</br>Saw 3DG March 10th, 2026</br>Fav Album(s) : Life Starts Now, One-X</br>Fav Song(s) : Lost in You, Let It Die</br>First Song(s) : Tell Me Why, Get Out Alive</br>
-<img width="310" src="https://spotify-github-profile.kittinanx.com/api/view?uid=8o0rx20f9q0suzdrpq7b8bgxv&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false"></br><img src="https://komarev.com/ghpvc/?username=HENRlKSSON-username&color=111111&style=round&label=i+hate+everything+about+you&abreviated=true">
+<div align="center">
+  <img align="center" img width="525" height="370" alt="i love you florian, cyrie" src="https://files.catbox.moe/4ecvx1.jpg"/></br>
+<img align="center" img width="525" height="370" alt="i love you florian, cyrie" src="https://files.catbox.moe/ae01s8.jpg"/></br>
+<img align="center" img width="525" height="370" alt="i love you florian, cyrie" src="https://files.catbox.moe/uwb1t9.jpg"/></br>
+  </br>
+<img src="https://komarev.com/ghpvc/?username=HENRlKSSON-username&color=111111&style=round&label=im+pure,+pure+as+a+lamb+໒꒱&abreviated=true"></br>
+◜⠀⠀⠀⠀he⠀⠀⠀⟢⠀⠀⠀it⠀⠀⏖</br>
+tkn x2⠀⠀⠀⸝⸝⠀⠀⠀⌣⠀⠀⠀16yo</br>
+◟⠀⠀⠀bpd⠀⠀⠀⠀npd⠀⠀⠀𝜕ℯ</br>
+  </br>
+<img align="center" img width="525" height="370" alt="i love you florian, cyrie" src="https://files.catbox.moe/ae01s8.jpg"/></br>
+<img width="310" src="https://spotify-github-profile.kittinanx.com/api/view?uid=8o0rx20f9q0suzdrpq7b8bgxv&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=true&bar_color=ffffff&bar_color_cover=false"></br>
+  <img align="center" img width="525" height="370" alt="i love you florian, cyrie" src="https://files.catbox.moe/zny7of.png"/></br>
 </div>
