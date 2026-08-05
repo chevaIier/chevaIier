@@ -5,7 +5,7 @@
   </br>
 <img src="https://komarev.com/ghpvc/?username=HENRlKSSON-username&color=111111&style=round&label=im+pure,+pure+as+a+lamb+໒꒱&abreviated=true"></br>
 ◜⠀⠀⠀⠀he⠀⠀⠀⟢⠀⠀⠀it⠀⠀⏖</br>
-taken⠀⠀⠀⸝⸝⠀⠀⠀⌣⠀⠀⠀16yo</br>
+taken⠀⠀⠀⸝⸝⠀⠀⠀⌣⠀⠀⠀17yo</br>
 ◟⠀⠀⠀bpd⠀⠀⠀⠀npd⠀⠀⠀𝜕ℯ</br>
   </br>
 <img align="center" img width="525" alt="i love you florian, cyrie" src="https://files.catbox.moe/ae01s8.jpg"/></br>
